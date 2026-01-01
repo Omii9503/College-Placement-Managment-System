@@ -1,2 +1,2 @@
-Some Changes 
-Clear Mistakes 
+Some changes 
+Clear Mistakes
